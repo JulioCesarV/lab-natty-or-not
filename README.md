@@ -48,7 +48,7 @@ O maior desafio foi **equilibrar a energia do rock com o conceito tecnológico**
 ---
 
 ## 🔗 Links e Créditos  
-- 🎧 **Ouça a música completa no Suno:** [https://suno.com/s/61obIgHnX1DEKgJD](https://suno.com/s/61obIgHnX1DEKgJD)  
+- 🎧 **Ouça a música completa no Suno:** [https://suno.com/s/BeJQ3X65rFS9XTiM](https://suno.com/s/BeJQ3X65rFS9XTiM)  
 - ✍️ **Letra e conceito:** Criados com auxílio do **ChatGPT (OpenAI)**
   # 🎸 Revolução Sintética  
 ### *(Rock pesado — som de futuro, energia e atitude)*  
